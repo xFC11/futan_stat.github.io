@@ -1,0 +1,1 @@
+# futan_stat.github.io
